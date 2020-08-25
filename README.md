@@ -21,3 +21,5 @@ A list of useful,effective and trust worthy Income sources:
 
 Sign Up Link:
 <a href="https://litegpt.com/register.aspx?u=70654">LiteGPT | The future is here, and you ?</a>
+Watch this Video to learn earning system:
+<blockquote class="embedly-card"><h4><a href="https://ojooo.com/?ref_wad=Farhan153&o=wad&show_video=video_1">Ojooo App</a></h4><p>A contemporary consumer is resistant to the traditional advertising forms, sensitive to obtrusive messages and he perceives the world totally different than the previous generations did. TV and press, as the most important media in the current century, have completely lost their powers.</p></blockquote> <script async src="//cdn.embedly.com/widgets/platform.js" charset="UTF-8"></script>
