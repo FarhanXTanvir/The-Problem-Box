@@ -1,6 +1,8 @@
 # Farhan's Hacks
 A list of useful,effective and trust worthy Income sources:
 # (Ad Clicks and Referral income)
+# Ring Id:
+<blockquote class="embedly-card"><h4><a href="http://www.ringid.com/dl?referrer=24327957">Download Now!</a></h4><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> <script async src="//cdn.embedly.com/widgets/platform.js" charset="UTF-8"></script>
 
 # Ojooo :
 <a href="https://wad.ojooo.com/index.php?r=Z7jT2sXCkqeX" target="_blank" rel="nofollow"><img src="https://wad.ojooo.com/bs_d.php?lng=en&u=2089186" align="center" /></a>
