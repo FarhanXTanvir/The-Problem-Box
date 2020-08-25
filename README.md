@@ -10,4 +10,7 @@ A list of useful,effective and trust worthy Income sources:
 <a href="https://www.coinpayu.com/?r=Farhan153"><img title="Join coinpayu to earn!" alt="coinpayu" src="https://coinpayu.com/static/advertiser_banner/468X60.gif"></a>
 
 # LiteGPT :
+<a href="https://litegpt.com/default.aspx?u=70654">LiteGPT | The future is here, and you ?</a>
+
+Sign Up Link:
 <a href="https://litegpt.com/register.aspx?u=70654">LiteGPT | The future is here, and you ?</a>
