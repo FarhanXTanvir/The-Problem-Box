@@ -1,7 +1,12 @@
 # Farhan's Hacks
 A list of useful,effective and trust worthy Income sources:
 # (Ad Clicks and Referral income)
+আপনার বিকাশ একাউন্ট আছে কিন্তু paypal,payoneer,skrill ইত্যাদি আন্তর্জাতিক পেমেন্ট একাউন্ট না থাকায় আন্তর্জাতিক  সহজ কাজ গুলো করতে পারছেন নাহ?
+বিকাশে পেমেন্ট নিতে চান?তাহলে নিচের লিংক এ গিয়ে একটি একাউন্ট খুলে নিন।
+# BestChange:
+<a target="_blank" href="https://www.bestchange.com/?p=1104275">www.bestchange.com</a>
 # Ring Id:
+
 <blackquote><<a href="http://www.ringid.com/dl?referrer=24327957">Download Now!</a></h4><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> 
 
 # Ojooo :
