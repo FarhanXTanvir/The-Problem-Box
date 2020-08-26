@@ -23,18 +23,21 @@ A list of useful,effective and trust worthy Income sources:
 এইটা অনেক প্রতিষ্ঠিত একটা সাইট।এখানে ইনকাম ভালো হয় যদি রেফার করতে পারেন আর রেগুলার Ad দেখেন।তবে minimum Withdrawal 50$. Withdraw করতে পারবেন Coinbase দিয়ে।
 লিংকঃ⏩      
 <blockquote class="embedly-card"><h4><a href="https://www.star-clicks.com/?ref=50891877">Star-Clicks.com Earn Money Online, Make Money Get Paid with PayPal Bitcoin Bank Transfer</a></h4><p>Make Money Online. Payout to PayPayl, Bank Transfer, Bitcoin. Easy To Use To Earn Money Online. Instant Account. Verified UK Business. World Wide. 100% Free</p></blockquote>
-# CoinpayU : Ojooo আর Star-Clicks এর মতো এইটাও এড ভিত্তক earning site.Try করে দেখতে পারেন।
+# Coinpayu: 
+Ojooo আর Star-Clicks এর মতো এইটাও এড ভিত্তক earning site.Try করে দেখতে পারেন।
 Link: 
 <a href="https://www.coinpayu.com/?r=Farhan153"><img title="Join coinpayu to earn!" alt="coinpayu" src="https://coinpayu.com/static/advertiser_banner/468X60.gif"></a>
 
-# LiteGPT : Ojooo আর Star-Clicks এর মতো এইটাও এড ভিত্তক earning site.Try করে দেখতে পারেন।
+# LiteGPT :
+ Ojooo আর Star-Clicks এর মতো এইটাও এড ভিত্তক earning site.Try করে দেখতে পারেন।
 Link: 
 <a href="https://litegpt.com/default.aspx?u=70654">LiteGPT | The future is here, and you ?</a>
 
 # Sign Up Link:
 <a href="https://litegpt.com/register.aspx?u=70654">LiteGPT | The future is here, and you ?</a>
+
 Watch this Video to learn earning system:
-<blockquote class="embedly-card"><h4><a href="https://ojooo.com/?ref_wad=Farhan153&o=wad&show_video=video_1">Ojooo App</a></h4><p>A contemporary consumer is resistant to the traditional advertising forms, sensitive to obtrusive messages and he perceives the world totally different than the previous generations did. TV and press, as the most important media in the current century, have completely lost their powers.</p></blockquote> <script async src="//cdn.embedly.com/widgets/platform.js"
+<blockquote class="embedly-card"><h4><a href="https://ojooo.com/?ref_wad=Farhan153&o=wad&show_video=video_1">Ojooo App</a></h4><p>A contemporary consumer is resistant to the traditional advertising forms, sensitive to obtrusive messages and he perceives the world totally different than the previous generations did. TV and press, as the most important media in the current century, have completely lost their powers.</p></blockquote>
 
 নিচে এমন কিছু মোবাইল অ্যাপস এর লিস্ট দেয়া হলো যেখান থেকে আপনি পেমেন্ট পাবেন।Guaranteed!!    
 # Ring Id:
