@@ -5,14 +5,9 @@ A list of useful,effective and trust worthy Income sources:
 বিকাশে পেমেন্ট নিতে চান?তাহলে নিচের লিংক এ গিয়ে একটি একাউন্ট খুলে নিন।
 # BestChange:
 <a target="_blank" href="https://www.bestchange.com/?p=1104275">www.bestchange.com</a>
-<script type="text/javascript" src="https://www.gstatic.com/swiffy/v7.4/runtime.js"></script>
-<script type="text/javascript" src="https://www.bestchange.com/images/banners/100x100-8.js"></script>
-<a target="_blank" href="https://www.bestchange.com/?p=1104275" title="Digital currency exchanger &ndash; BestChange"><span id="r8SZTbKffsA8YArybBZ8" style="display: inline-block; width: 100px; height: 100px; background-color: #89b508; margin: 0; padding: 0; border: none; overflow: hidden" onclick="return false"></span></a>
-<script type="text/javascript">
-var stage = new swiffy.Stage(document.getElementById('r8SZTbKffsA8YArybBZ8'), swiffyobject, {});
-stage.setFlashVars('clickTAG=https://www.bestchange.com/?p=1104275');
-stage.start();
-</script>
+
+<a target="_blank" href="https://www.bestchange.com/?p=1104275"><img src="https://www.bestchange.com/images/banners/728x90-9.gif" alt="Digital currency exchanger" title="E-currency exchanger monitor BestChange.com" width="728" height="90" border="0" /></a>
+
 # Ring Id:
 
 <blackquote><a href="http://www.ringid.com/dl?referrer=24327957">Download Now!</a></h4><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> 
