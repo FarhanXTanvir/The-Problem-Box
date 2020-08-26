@@ -7,10 +7,11 @@ A list of useful,effective and trust worthy Income sources:
 <a target="_blank" href="https://www.bestchange.com/?p=1104275">www.bestchange.com</a>
 
 <a target="_blank" href="https://www.bestchange.com/?p=1104275"><img src="https://www.bestchange.com/images/banners/728x90-9.gif" alt="Digital currency exchanger" title="E-currency exchanger monitor BestChange.com" width="728" height="90" border="0" /></a>
-#Coinbase:
+# Coinbase:
  এরপর একটি Coinbase Account খুলে সঠিকভাবে তথ্য দিয়ে আপনার একাউন্ট টি Verify করুন।এরপর আপনার ইনকাম সাইটে যে Currency তে পেমেন্ট করে তার সে Currency তে টাকা নেওয়ার জন্য একটি Wallet Address create করুন।
 তারপর আপনার ইনকাম সাইটে Coinbase Sallet adress দিয়ে withdraw করে নিন।এরপর BestChange website থেকে Coinbase wallet এ জমা করা টাকা exchange করে আপনার বিকাশ একাউন্টে নিয়ে নিন।হয়ে গেলো।সরাসরি Coinbase Account খুলতে নিচের লিংকে ক্লিক করুনঃ
-⏩ <a ref="https://www.coinbase.com/signup">Coinbase</a> 
+
+⏩ <a href="https://www.coinbase.com/signup"> Coinbase Sign Up! </a>
 # Ring Id:
 
 <blackquote><a href="http://www.ringid.com/dl?referrer=24327957">Download Now!</a></h4><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> 
@@ -28,4 +29,4 @@ A list of useful,effective and trust worthy Income sources:
 # Sign Up Link:
 <a href="https://litegpt.com/register.aspx?u=70654">LiteGPT | The future is here, and you ?</a>
 Watch this Video to learn earning system:
-<blockquote class="embedly-card"><h4><a href="https://ojooo.com/?ref_wad=Farhan153&o=wad&show_video=video_1">Ojooo App</a></h4><p>A contemporary consumer is resistant to the traditional advertising forms, sensitive to obtrusive messages and he perceives the world totally different than the previous generations did. TV and press, as the most important media in the current century, have completely lost their powers.</p></blockquote> <script async src="//cdn.embedly.com/widgets/platform.js" charset="UTF-8"></script>
+<blockquote class="embedly-card"><h4><a href="https://ojooo.com/?ref_wad=Farhan153&o=wad&show_video=video_1">Ojooo App</a></h4><p>A contemporary consumer is resistant to the traditional advertising forms, sensitive to obtrusive messages and he perceives the world totally different than the previous generations did. TV and press, as the most important media in the current century, have completely lost their powers.</p></blockquote> <script async src="//cdn.embedly.com/widgets/platform.js"
