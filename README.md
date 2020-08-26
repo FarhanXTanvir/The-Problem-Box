@@ -56,7 +56,13 @@ Payment Method:Bkash
 <blackquote><a href="http://www.ringid.com/dl?referrer=24327957"><h1>Download Now!</h1></a><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> 
 
 # Clipclaps:
-Payment Method:Mobile Recharge and Paypal  
+Payment Method:Mobile Recharge and Paypal 
+
+10$ হলে মোবাইল রিচার্জের মাধ্যমে পেমেন্ট নেওয়ায় যায়।
+মজার ব্যাপার হলো,এই অ্যাপটায় ইনকাম করতে সময় কম লাগে+বন্ধুদের এপ ডাউনলোড করার মাধ্যমে রেফার করার মাধ্যমে যথেষ্ট পরিমাণ ইনকাম করা যায়।আর সবচেয়ে ভালো দিক হলো ইনকাম করার জন্য শুধু গেইম খেলতে হয় আর ফানি ভিডিও দেখতে হয়।তার জন্য এক্সট্রা কোনো এপ ডাউনলোড করা লাগে নাহ।ভালোই সময় কাটে।
+নিচের লিংক থেকে এপটা ডাউনলোড করতে পারেন।
+Sign up এর পর Radeem option এ 0603794644 এই কোড টা দিলে  instantly 0.2$ and একটা Diamond chest পাবেন।ওই Diamond chest টা ওপেন করলে আরো $ পাওয়ার চান্স আছে।..
+http://www.clipclaps.com
 
 
 # 2Captha: 
