@@ -4,6 +4,7 @@
 
  বাংলাদেশিদের জন্য,বিশেষভাবে Student রা যাতে অনলাইনে অল্প কিছু ইনকাম করার উপায় সহজে এক জায়গায় পায় সেজন্য এই 
  Website এ সব ধরনের Earning Website ও Apps share করলাম।একবার করে সব Try করে দেখতেই পারেন।সব গুলো  Legit.
+ পেইজের শেষ অংশে Earning App গুলোর তথ্য পাবেন।আর প্রথম অংশে Earning website নিয়ে জানবেন।
  
 A list of useful,effective and trust worthy Income sources:
 # (Ad Clicks and Referral income)
@@ -62,11 +63,14 @@ Payment Method:Mobile Recharge and Paypal
 মজার ব্যাপার হলো,এই অ্যাপটায় ইনকাম করতে সময় কম লাগে+বন্ধুদের এপ ডাউনলোড করার মাধ্যমে রেফার করার মাধ্যমে যথেষ্ট পরিমাণ ইনকাম করা যায়।আর সবচেয়ে ভালো দিক হলো ইনকাম করার জন্য শুধু গেইম খেলতে হয় আর ফানি ভিডিও দেখতে হয়।তার জন্য এক্সট্রা কোনো এপ ডাউনলোড করা লাগে নাহ।ভালোই সময় কাটে।
 নিচের লিংক থেকে এপটা ডাউনলোড করতে পারেন।
 Sign up এর পর Radeem option এ 0603794644 এই কোড টা দিলে  instantly 0.2$ and একটা Diamond chest পাবেন।ওই Diamond chest টা ওপেন করলে আরো $ পাওয়ার চান্স আছে।..
-http://www.clipclaps.com
+https://www.clipclaps.com
 
 
 # 2Captha: 
 Payment Method: Coinbase 
+1000Captha=1$
+এইটা এখন খুব জনপ্রিয় এবং বিশ্বস্ত।নিচের রেজিষ্ট্রেশন লিংক থেকে রেজিষ্ট্রেশন করে প্লে স্টোর থেকে অ্যাপটি ডাউনলোড করে কাজ শুরু করতে পারেন।
+https://2captcha.com?from=9941147
 
 
-
+যেকোনো প্রয়োজনে যোগাযোগ করুন  <a href="https://facebook.com/fraacks"><h1>Facebook</h1></a>
