@@ -1,8 +1,11 @@
-# Farhan's Hacks
+<h1>Online Income<Br>অনলাইন ইনকাম</h1>
+ বাংলাদেশিদের জন্য,বিশেষভাবে Student রা যাতে অনলাইনে অল্প কিছু ইনকাম করার উপায় সহজে এক জায়গায় পায় সেজন্য এই 
+ Website এ সব ধরনের Earning Website ও Apps share করলাম।একবার করে সব Try করে দেখতেই পারেন।সব গুলো  Legit.
+ 
 A list of useful,effective and trust worthy Income sources:
 # (Ad Clicks and Referral income)
 আপনার বিকাশ একাউন্ট আছে কিন্তু paypal,payoneer,skrill ইত্যাদি আন্তর্জাতিক পেমেন্ট একাউন্ট না থাকায় আন্তর্জাতিক  সহজ কাজ গুলো করতে পারছেন নাহ?
-বিকাশে পেমেন্ট নিতে চান?তাহলে নিচের লিংক এ গিয়ে একটি একাউন্ট খুলে নিন।
+বিকাশে পেমেন্ট নিতে চান?তাহলে নিচের লিংক এ গিয়ে প্রথমে BestChange account খুলে নিন।এরপর কি যা যা করতে হবে তা ধাপে ধাপে বলা আছে।খুব শীঘ্রই আমি ভিডিও টিউটোরিয়াল এর মাধ্যমেও দেখিয়ে দিবো।
 # BestChange:
 <a target="_blank" href="https://www.bestchange.com/?p=1104275">www.bestchange.com</a>
 
