@@ -10,7 +10,7 @@ A list of useful,effective and trust worthy Income sources:
 #Coinbase:
  এরপর একটি Coinbase Account খুলে সঠিকভাবে তথ্য দিয়ে আপনার একাউন্ট টি Verify করুন।এরপর আপনার ইনকাম সাইটে যে Currency তে পেমেন্ট করে তার সে Currency তে টাকা নেওয়ার জন্য একটি Wallet Address create করুন।
 তারপর আপনার ইনকাম সাইটে Coinbase Sallet adress দিয়ে withdraw করে নিন।এরপর BestChange website থেকে Coinbase wallet এ জমা করা টাকা exchange করে আপনার বিকাশ একাউন্টে নিয়ে নিন।হয়ে গেলো।সরাসরি Coinbase Account খুলতে নিচের লিংকে ক্লিক করুনঃ
-⏩ <a ref="https://www.coinbase.com/signup"><h2>Coinbase</h2></a> 
+⏩ <a ref="https://www.coinbase.com/signup">Coinbase</a> 
 # Ring Id:
 
 <blackquote><a href="http://www.ringid.com/dl?referrer=24327957">Download Now!</a></h4><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> 
