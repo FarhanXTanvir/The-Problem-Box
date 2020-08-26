@@ -48,13 +48,15 @@ Watch this Video to learn earning system:
 
 নিচে এমন কিছু মোবাইল অ্যাপস এর লিস্ট দেয়া হলো যেখান থেকে আপনি পেমেন্ট পাবেন।Guaranteed!!    
 # Ring Id:
+
 Payment Method:Bkash 
 এই অ্যাপে রেজিষ্ট্রেশন করলে ৫০টাকা বোনাস এরপর থেকে আপনার রেফারে যত জন এই অ্যাপটি ডাউনলোড করবে এবং রেজিষ্ট্রেশন করবে প্রতি জনে ২০টাকা করে আপনি রেফার বোনাস পাবেন।
 এই অ্যাপটি ইতোমধ্যে বাংলাদেশ এ হওয়া একটি ত্রিদেশীয় সিরিজ স্পন্সরশীপে ছিলো এবং এটি একটি প্রতিষ্ঠিত অ্যাপ।আপনি চাইলেই Ring Id নিয়ে গুগল/ইউটিউবে খোজ নিয়ে দেখতে পারেন।
 অ্যাপটি ডাউনলোড করতে নিচের লিংকে ক্লিক করুন।আর হ্যাঁ আমার রেফার কোড ব্যবহার করতে ভূলবেন নাহ!!তাহলে ভবিষ্যতে আরো ভালো কিছু নিয়ে আপনাদের সাহায্য করতে অনুপ্রেরণা পাবো।
-আমার রেফার কোডঃ 72828282                  
+আমার রেফার কোডঃ <b>72828282 </b>              
 
-<blackquote><a href="http://www.ringid.com/dl?referrer=24327957"><h1>Download Now!</h1></a><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> 
+<a href="http://www.ringid.com/dl?referrer=24327957"><h1>Download Now!</h1></a><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p> 
+
 
 # Clipclaps:
 
