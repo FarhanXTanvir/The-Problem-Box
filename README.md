@@ -7,7 +7,10 @@ A list of useful,effective and trust worthy Income sources:
 <a target="_blank" href="https://www.bestchange.com/?p=1104275">www.bestchange.com</a>
 
 <a target="_blank" href="https://www.bestchange.com/?p=1104275"><img src="https://www.bestchange.com/images/banners/728x90-9.gif" alt="Digital currency exchanger" title="E-currency exchanger monitor BestChange.com" width="728" height="90" border="0" /></a>
-
+# Coinbase:
+<a ref="https://www.coinbase.com/signup"><h2>Coinbase</h2></a>: এরপর একটি Coinbase Account খুলে সঠিকভাবে তথ্য দিয়ে আপনার একাউন্ট টি Verify করুন।এরপর আপনার ইনকাম সাইটে যে Currency তে পেমেন্ট করে তার সে Currency তে টাকা নেওয়ার জন্য একটি Wallet Address create করুন।
+তারপর আপনার ইনকাম সাইটে Coinbase Sallet adress দিয়ে withdraw করে নিন।এরপর BestChange website থেকে Coinbase wallet এ জমা করা টাকা exchange করে আপনার বিকাশ একাউন্টে নিয়ে নিন।হয়ে গেলো।
+ 
 # Ring Id:
 
 <blackquote><a href="http://www.ringid.com/dl?referrer=24327957">Download Now!</a></h4><p>Download the familiar app with all of ringID features in one place. Taking socializing to new heights. Make high quality voice calls and grab other exciting features like instant messaging and secret chat for free. Download to discover more.</p></blockquote> 
