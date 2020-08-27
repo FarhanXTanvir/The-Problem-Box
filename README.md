@@ -30,7 +30,8 @@ A list of useful,effective and trust worthy Income sources:
 এইটা অনেক প্রতিষ্ঠিত একটা সাইট।এখানে ইনকাম ভালো হয় যদি রেফার করতে পারেন আর রেগুলার Ad দেখেন।তবে minimum Withdrawal 50$. Withdraw করতে পারবেন Coinbase দিয়ে।
 লিংকঃ⏩      
 <blockquote class="embedly-card"><h4><a href="https://www.star-clicks.com/?ref=50891877">Star-Clicks.com Earn Money Online, Make Money Get Paid with PayPal Bitcoin Bank Transfer</a></h4><p>Make Money Online. Payout to PayPayl, Bank Transfer, Bitcoin. Easy To Use To Earn Money Online. Instant Account. Verified UK Business. World Wide. 100% Free</p></blockquote>
-# Coinpayu: 
+
+# Coinpayu:
 Ojooo আর Star-Clicks এর মতো এইটাও এড ভিত্তক earning site.Try করে দেখতে পারেন।
 Link: 
 <a href="https://www.coinpayu.com/?r=Farhan153"><img title="Join coinpayu to earn!" alt="coinpayu" src="https://coinpayu.com/static/advertiser_banner/468X60.gif"></a>
