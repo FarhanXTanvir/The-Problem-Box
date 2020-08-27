@@ -76,4 +76,6 @@ Payment Method: Coinbase
 <a href="https://2captcha.com?from=9941147">Sign Up Now!</a>
 
 
-যেকোনো প্রয়োজনে যোগাযোগ করুন  <a href="https://facebook.com/fraacks"><h1>Facebook</h1></a>
+যেকোনো প্রয়োজনে যোগাযোগ করুন 
+
+<a href="https://facebook.com/fraacks"><h1>Facebook</h1></a>
